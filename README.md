@@ -1,7 +1,3 @@
-## Able to sit in my chair for extended periods of time without numbness or fatigue. <\br>
-## I just want a job. Please someone hire me 🙂 <\br>
-
-
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/charleskelsey/) 
 
